@@ -1,0 +1,1 @@
+**In the  interplay of events, the cause and effect must logically match. Usually found in determining intent, culpability, or nature of an offense.  This test is inherently empirical, it being based on the facts of a case.**
